@@ -1,5 +1,5 @@
 # 汤姆影院 最新地址发布 
-## 导 航 永 久 域 名Https://tmys.tv
+## 导 航 永 久 域 名Https://tmav.tv
 ## ⭐️ 👉 地址一 ：HttpS://5000tom.com
 ## ⭐️ 👉 地址二 ：HttpS://5010tom.com
 ## ⭐️ 👉 汤姆APP ：HttpS://3839tom.com
